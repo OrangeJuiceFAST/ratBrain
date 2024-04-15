@@ -1,0 +1,1 @@
+nothingness is eternal
